@@ -11,5 +11,4 @@ Here are some ideas to get you started:
 
 - 💬 Preguntame sobre musica, programacion y videojuegos
 - 📫 contacteme: gerson.dlarosa@gmail.com
-- 😄 Pronouns: ...
 - ⚡ Datos curios: Puedo tocar cualquier musica en guitarra 
